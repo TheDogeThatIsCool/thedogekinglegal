@@ -44,4 +44,4 @@ These Terms are governed by and construed in accordance with the laws of the jur
 
 ## 11. Contact Us
 For any questions regarding these Terms, please contact us at:  
-**Email:** hello@thedogeking.online
+**Email:** help@thedogeking.online
